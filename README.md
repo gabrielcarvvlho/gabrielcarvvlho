@@ -1,5 +1,3 @@
-swe
-
-ts and it's enough 
+swe :)
 
 gabrielcarvvlho@gmail.com
