@@ -1,5 +1,5 @@
 swe
 
-ts and is enough 
+ts and it's enough 
 
 gabrielcarvvlho@gmail.com
