@@ -1,6 +1,6 @@
 founding swe @ brief
 
-building the future of event management 🌐
+building an Event OS 🌐
 
 
-gabrielcarvvlho@gmail.com
+shoot me an email: gabrielcarvvlho@gmail.com :p
