@@ -1,6 +1,4 @@
-founding swe @ brief
-
-building an Event OS 🌐
+learning by building
 
 https://gabrielcarvvlho.vercel.app/
 
