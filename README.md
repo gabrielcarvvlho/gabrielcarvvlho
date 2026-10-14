@@ -1,4 +1,4 @@
-learning by building
+learning-driven
 
 https://gabrielcarvvlho.com/
 
